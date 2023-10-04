@@ -1,1 +1,1 @@
-# python
+# O'zbekcha lug'at
